@@ -1,6 +1,6 @@
 
 
-# Ismim Miryunus Ma'murov
+# Miryunus Ma'murov
 **Vazifa qancha vaqt oldi** 3 soat
 **Qiyin bo‘lgan joylar** Qiyin joylari bo‘lmadi
 **Interfeys skrinshotlari** 
